@@ -3,3 +3,4 @@ The camera only took < 2 hours to make. Finding a good position and setting took
 
 
 2. What was most unclear?
+Everything was clear for us.
